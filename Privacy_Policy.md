@@ -147,5 +147,5 @@ You are advised to review this Privacy Policy periodically for any changes. Chan
 
 If you have any questions about this Privacy Policy, please contact us:
 
-*   By email: amitjoki@gmail.com
+*   By email: waqas.ahmed8919@hotmail.com
 *   By visiting this page on our website: https://amitjoki.github.io/Enigma/Privacy_Policy
